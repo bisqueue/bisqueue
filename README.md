@@ -12,8 +12,8 @@
 <br><p align="center"> $\color{#91B9D8}{\text{" Hmm.. Maybe that}}$ $\color{#7726C4}{\text{Warden}}$ $\color{#91B9D8}{\text{could finally help}}$ $\color{#70A6CC}{\text{Me}}$ $\color{#91B9D8}{\text{get better. "}}$
 <br><p align="center"> $\color{#C4D8EA}{\text{" It'd be a}}$ $\color{#FC1AB4}{\text{Change of Pace}}$ $\color{#C4D8EA}{\text{around Here for once.. "}}$
 
-[<img width="536" height="214" alt="Untitled1657_20261110081325" src="https://github.com/user-attachments/assets/788989c6-fc6a-4508-8ba2-8e705d3eeb08" />](https://bisqueue.straw.page)
-<br><p align="center"> [<img width="536" height="214" alt="Untitled1657_20261110081422" src="https://github.com/user-attachments/assets/b1ccf5a1-e15c-474c-89c7-b3e8c82dfd3f" />](https://healersparadise.atabook.org/?page=1)
+[<img width="436" height="114" alt="Untitled1657_20261110081325" src="https://github.com/user-attachments/assets/788989c6-fc6a-4508-8ba2-8e705d3eeb08" />](https://bisqueue.straw.page)
+<br><p align="center"> [<img width="436" height="114" alt="Untitled1657_20261110081422" src="https://github.com/user-attachments/assets/b1ccf5a1-e15c-474c-89c7-b3e8c82dfd3f" />](https://healersparadise.atabook.org/?page=1)
 
 <br><p align="center"> <img width="101" height="57" alt="tumblr_c027d852bde8200336c33fae87c5ec95_85ff260a_250" src="https://github.com/user-attachments/assets/90feea78-2b68-4ebb-9efa-639b8df359a5" /> <img width="101" height="57" alt="tumblr_4e10cc297ffbf6fc4e6f288274787429_ae200236_250" src="https://github.com/user-attachments/assets/56da8ca4-059e-4563-a60d-6b93beeced20" />
 
