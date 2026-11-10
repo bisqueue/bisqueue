@@ -10,7 +10,6 @@
 
 <br><p align="center"> $\color{#A6A2E7}{\text{" Hm.. Maybe That}}$ $\color{#9037C8}{\text{Warden}}$ $\color{#A6A2E7}{\text{can Help Me get better. "}}$
 <br><p align="center"> $\color{#C9C6F0}{\text{" It'd be A}}$ $\color{#ffffff}{\text{Change of Pace}}$ $\color{#C9C6F0}{\text{around Here finally. "}}$
-
-<br><p align="center"> <img width="66" height="20" alt="tumblr_ce1e367bba68b1556230371fecc68943_e0dfc318_75" src="https://github.com/user-attachments/assets/87a56752-2aa5-4c30-aacd-ace2f8a5354f" />
+<br><p align="center"> <img width="101" height="57" alt="tumblr_c027d852bde8200336c33fae87c5ec95_85ff260a_250" src="https://github.com/user-attachments/assets/90feea78-2b68-4ebb-9efa-639b8df359a5" /> <img width="66" height="20" alt="tumblr_ce1e367bba68b1556230371fecc68943_e0dfc318_75" src="https://github.com/user-attachments/assets/87a56752-2aa5-4c30-aacd-ace2f8a5354f" /> <img width="101" height="57" alt="tumblr_4e10cc297ffbf6fc4e6f288274787429_ae200236_250" src="https://github.com/user-attachments/assets/56da8ca4-059e-4563-a60d-6b93beeced20" />
 
 <br><p align="center"> <img width="1600" height="120" alt="tumblr_680de4647d97ecb5a52b41245cf1738d_80dba8c6_2048" src="https://github.com/user-attachments/assets/70c664fe-dbfe-489d-bed9-c15b596bf01c" />
