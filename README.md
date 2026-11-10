@@ -10,7 +10,7 @@
 <br><p align="center"> <img width="25" height="25" alt="tumblr_235d9034f48d54054de14a90aacf4a6a_b7e0da73_75" src="https://github.com/user-attachments/assets/01d7559d-3ff1-4471-85ab-1b0060e89ee7" /> *HI [COSMO](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC* <img width="25" height="25" alt="tumblr_e8a9055b104fd3277b3c370bea151ef3_52e5a4fe_75" src="https://github.com/user-attachments/assets/43e6584e-b58d-4d36-97ca-fbf63334ca48" />
 
 <br><p align="center"> $\color{#5676D7}{\text{" Hm.. Maybe That }}$ $\color{391970}{\text{Warden}}$ $\color{#5676D7}{\text{ can Help Me. "}}$
-<br><p align="center"> $\color{#9FA9EA}{\text{" It'd be A $\color{#ffffff}{\text{Change of Pace}}$ around Here. "}}$
+<br><p align="center"> $\color{#9FA9EA}{\text{" It'd be A }}$ $\color{#ffffff}{\text{Change of Pace}}$ $\color{#9FA9EA}{\text{around Here. "}}$
 
 <br><p align="center"> <img width="66" height="20" alt="tumblr_ce1e367bba68b1556230371fecc68943_e0dfc318_75" src="https://github.com/user-attachments/assets/87a56752-2aa5-4c30-aacd-ace2f8a5354f" />
 
