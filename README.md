@@ -14,6 +14,7 @@
 
 [<img width="536" height="214" alt="Untitled1657_20261110081325" src="https://github.com/user-attachments/assets/788989c6-fc6a-4508-8ba2-8e705d3eeb08" />](https://bisqueue.straw.page)
 <br><p align="center"> [<img width="536" height="214" alt="Untitled1657_20261110081422" src="https://github.com/user-attachments/assets/b1ccf5a1-e15c-474c-89c7-b3e8c82dfd3f" />](https://healersparadise.atabook.org/?page=1)
-<br><p align="center"> <img width="101" height="57" alt="tumblr_c027d852bde8200336c33fae87c5ec95_85ff260a_250" src="https://github.com/user-attachments/assets/90feea78-2b68-4ebb-9efa-639b8df359a5" /> <img width="101" height="57" alt="tumblr_4e10cc297ffbf6fc4e6f288274787429_ae200236_250" src="https://github.com/user-attachments/assets/56da8ca4-059e-4563-a60d-6b93beeced20" />
+
+<br><p align="center"> <img width="110" height="60" alt="tumblr_7996755ff489ccfdc208767a27ebf64f_80d6c274_250" src="https://github.com/user-attachments/assets/47b558c4-d01c-49c9-a8b5-c5e95e6c33f3" /> <img width="110" height="60" alt="tumblr_ba012dc31fc21a3c304a300f6800a0cb_f046d80d_250" src="https://github.com/user-attachments/assets/26d7aea9-6eb5-47af-8dbf-6fa33d7411c2" />
 
 <br><p align="center"> <img width="1600" height="120" alt="tumblr_680de4647d97ecb5a52b41245cf1738d_80dba8c6_2048" src="https://github.com/user-attachments/assets/70c664fe-dbfe-489d-bed9-c15b596bf01c" />
