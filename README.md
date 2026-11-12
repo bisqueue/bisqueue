@@ -9,8 +9,8 @@
 [*THE No.1 Sister / Brother in the Whole WIDE World!!!*](https://github.com/sw33tsug4rcookie) <img width="45" height="45" alt="tumblr_9e3718a08025ce0a463da46c43634c94_195418fa_75" src="https://github.com/user-attachments/assets/dbbcc8be-09ca-4b0b-a6e2-01be6a913ded" />
 <br><p align="center"> <img width="25" height="25" alt="tumblr_235d9034f48d54054de14a90aacf4a6a_b7e0da73_75" src="https://github.com/user-attachments/assets/01d7559d-3ff1-4471-85ab-1b0060e89ee7" /> *HI [KAI KAI](https://github.com/CosmoThePastryy) HIII ILYVM <33 /VPLATONIC* <img width="25" height="25" alt="tumblr_e8a9055b104fd3277b3c370bea151ef3_52e5a4fe_75" src="https://github.com/user-attachments/assets/43e6584e-b58d-4d36-97ca-fbf63334ca48" />
 
-<br><p align="center"> $\color{#91B9D8}{\text{" Hmm.. Maybe}}$ $\color{#7726C4}{\text{MIRA}}$ $\color{#91B9D8}{\text{can help}}$ $\color{#70A6CC}{\text{Me}}$ $\color{#91B9D8}{\text{with that.. "}}$
-<br><p align="center"> $\color{#C4D8EA}{\text{" It'd be a}}$ $\color{#FC1AB4}{\text{Change of Pace}}$ $\color{#C4D8EA}{\text{for once.. "}}$
+<br><p align="center"> $\color{#91B9D8}{\text{" Hmm.. Maybe}}$ $\color{#FC1AB4}{\text{MIRA}}$ $\color{#91B9D8}{\text{can help}}$ $\color{#70A6CC}{\text{Me}}$ $\color{#91B9D8}{\text{with that.. "}}$
+<br><p align="center"> $\color{#C4D8EA}{\text{" It'd be a}}$ $\color{#7726C4}{\text{Change of Pace}}$ $\color{#C4D8EA}{\text{for once.. "}}$
 
 [<img width="536" height="214" alt="Untitled1657_20261110081325" src="https://github.com/user-attachments/assets/788989c6-fc6a-4508-8ba2-8e705d3eeb08" />](https://bisqueue.straw.page)
 <br><p align="center"> [<img width="536" height="214" alt="Untitled1657_20261110081422" src="https://github.com/user-attachments/assets/b1ccf5a1-e15c-474c-89c7-b3e8c82dfd3f" />](https://healersparadise.atabook.org/?page=1)
